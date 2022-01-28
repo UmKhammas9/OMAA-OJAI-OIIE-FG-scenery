@@ -1,1 +1,0 @@
-# OMAA-OJAI-OIIE-FG-scenery
